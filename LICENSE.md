@@ -1,4 +1,4 @@
-# 
+# exclusive Sejda PDF for PC | Sejda PDF for Windows Extension | stamps + redaction is the best Sejda PDF for PC | Sejda PDF for Windows extension, featuring stamps and redaction.
 
 
 
